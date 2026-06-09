@@ -1,4 +1,4 @@
-
+bedwars Scripts hidden offers the most advanced bedwars Script, with speed and instant win. Perfect for dominating any match.
 
 
 
